@@ -1,0 +1,1 @@
+EM LÀM VỘI QUÁ QUÊN CUỖI EM CÓ BỊ LỖI NÊN EM GƯI MÀ CHƯA ĐỔI TÊN EM THẬT SỰ XIN LỖI VỀ SỰ CỐ NÀY Ạ EM HỨA SẼ KH CÓ LẦN SAU EM MONG THẤY CÓ THẺ BỎ QUA CHO EM LẦN NÀY
